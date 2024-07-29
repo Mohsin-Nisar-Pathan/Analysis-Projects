@@ -158,4 +158,7 @@ I am open for entry-level data anlalyst role.
 
 Let us have discussion about your company and industry now!
 
+![Image 2024-07-29](https://github.com/user-attachments/assets/7ced58e2-b36c-496a-8694-30a04dbe2785)
+
+
 ![Image 2024-07-29 ](https://github.com/user-attachments/assets/343c205b-fad7-465b-86ac-c05b636182e8)
