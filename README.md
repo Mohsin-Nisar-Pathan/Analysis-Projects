@@ -162,3 +162,5 @@ Let us have discussion about your company and industry now!
 
 
 ![Image 2024-07-29 ](https://github.com/user-attachments/assets/343c205b-fad7-465b-86ac-c05b636182e8)
+
+![Image 2024-07-29](https://github.com/user-attachments/assets/0d35ae7e-8e46-4411-8519-3e2cec1d4707)
